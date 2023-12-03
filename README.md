@@ -16,5 +16,5 @@ YES! The MASTER! Of the UNIVERSE! Amen.
 And the NAME! Of GOD! Is JESUS! Amen.
 YOU! Hear? http://ShalomJESUS.com
 The SON! Of GOD! Is ONLY! One,
-Jesus IMANUEL, the Messiah, AMEN!
+Jesus EMANUEL, the Messiah, AMEN!
 End. Everything is SAID! Finish.
